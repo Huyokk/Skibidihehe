@@ -1,2 +1,2 @@
-# Skibidihehe
-Idk:)
+LTPO SCRIPT
+LTPO YZZ
